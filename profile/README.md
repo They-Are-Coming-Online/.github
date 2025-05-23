@@ -6,6 +6,8 @@
 
 **They Are Coming Online** is an **epic 2D zombie survival shooter** where you're the last hope against waves of relentless undead. With **crazy weapons**, **unstoppable upgrades**, and **hyper-casual combat**, the game offers a hilarious yet intense experience. Whether you're blasting through zombies with a shotgun or surviving with just a frying pan, the madness never ends.
 
+## <a href="https://1kb.link/P6TNbr">👉 Click To Play They Are Coming Unblocked NOW 👈</a>
+
 ---
 
 ### 🎮 Game Features
